@@ -6,7 +6,7 @@ Welcome to the echoes of my soul, reverberating through this repository. I am bu
 
 ## About Me
 
-- **Name:** [_______]
+- **Name:** [Anonymous]
 - **Age:** 16
 - **Religion:** Islam
 - **Current State:** Lost in doubt, drowning in despair
