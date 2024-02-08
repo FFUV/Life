@@ -1,5 +1,4 @@
-# 𝓔𝓬𝓱𝓸𝓮𝓼 𝓸𝓯 𝓓𝓮𝓼𝓹𝓪𝓲𝓻: 𝓐 𝓣𝓪𝓵𝓮 𝓸𝓯 𝓤𝓷𝓬𝓮𝓻𝓽𝓪𝓲𝓷𝓽𝔂 𝓪𝓷𝓭 𝓢𝓸𝓻𝓻𝓸𝔀
-
+# 𝓔𝓬𝓱𝓸𝓮𝓼 𝓸𝓯 𝓓𝓮𝓼𝓹𝓪𝓲𝓻: My Life
 ## 𝒲𝑒𝓁𝒸𝑜𝓂𝑒
 
 Welcome to the darkness that envelops my soul, concealed within this digital refuge. I am a wanderer, nameless and lost, adrift in the void of existence. Join me as I descend deeper into the depths of despair and disillusionment.
